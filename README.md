@@ -15,5 +15,6 @@ Short Note On Abraham Lincoln
 -  His rise from humble beginnings to achieving the highest office in the land is a remarkable story
 
 ![FORMER PRESIDENT](https://amp.businessinsider.com/images/5a81cbc2d030729f008b457d-750-563.jpg "LINCOLN")
+
 ABRAHAM LINCOLN PICTURE
 
