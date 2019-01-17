@@ -14,7 +14,6 @@ Short Note On Abraham Lincoln
 - Lincoln was suddenly and tragically assassinated at a time when his country needed him to complete the great task remaining before the nation.
 -  His rise from humble beginnings to achieving the highest office in the land is a remarkable story
 
-**ABRAHAM LINCOLN PICTURE**
 ![FORMER PRESIDENT](https://amp.businessinsider.com/images/5a81cbc2d030729f008b457d-750-563.jpg "LINCOLN")
-
+ABRAHAM LINCOLN PICTURE
 
