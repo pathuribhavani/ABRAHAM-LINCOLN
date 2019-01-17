@@ -16,4 +16,4 @@ Short Note On Abraham Lincoln
 
 ![FORMER PRESIDENT](https://amp.businessinsider.com/images/5a81cbc2d030729f008b457d-750-563.jpg "LINCOLN")
 
-                    **ABRAHAM LINCOLN PICTURE**
+                                 **ABRAHAM LINCOLN PICTURE**
